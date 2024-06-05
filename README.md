@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @cheatesos
+- 👀 I’m interested in pirated minecraft
+- 🌱 I’m currently learning that i can't do anything
+- 📫 How to reach me, you can't your arms aren't long enough
+- ⚡ Fun fact: I heart cheetoes and dill pickles
